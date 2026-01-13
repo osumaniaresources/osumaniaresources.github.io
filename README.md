@@ -1,1 +1,0 @@
-# osumaniaresources.github.io
